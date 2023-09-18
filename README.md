@@ -1,3 +1,2 @@
-### Hi there 👋
 
-Apitzbarber.github.io
+Apitz's Barbershop & Academy
